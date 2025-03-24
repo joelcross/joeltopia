@@ -18,10 +18,11 @@ jobs:
       - name: Checkout repository
         uses: actions/checkout@v4
 
-      - name: Install Node.js
-        uses: actions/setup-node@v4
+      - name: Use Node.js 20
+        uses: actions/setup-node@v3
         with:
-          node-version: 18  # Use a supported version
+          node-version: 20
+          cache: 'npm' # Optional: Speeds up dependency installation
 
       - name: Install Dependencies
         run: npm install
