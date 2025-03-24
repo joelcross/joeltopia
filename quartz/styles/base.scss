@@ -192,6 +192,8 @@ a {
     }
 
     & .sidebar.left {
+      border-right: 4px dashed var(--gray);
+      margin-right: 2rem;
       z-index: 1;
       grid-area: grid-sidebar-left;
       flex-direction: column;
@@ -273,7 +275,11 @@ a {
 
 .footnotes {
   margin-top: 2rem;
-  border-top: 1px solid var(--lightgray);
+  border-top: 1px solid var(--primary);
+}
+
+a::after {
+  content: none !important;
 }
 
 input[type="checkbox"] {

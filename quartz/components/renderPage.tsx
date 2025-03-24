@@ -219,6 +219,7 @@ export function renderPage(
   const RightComponent = (
     <div class="right sidebar">
       {right.map((BodyComponent) => (
+
         <BodyComponent {...componentData} />
       ))}
     </div>
@@ -246,7 +247,8 @@ export function renderPage(
                 </div>
               </div>
               <Content {...componentData} />
-              <hr />
+              {/* <hr /> */}
+              {/* hides footer border */}
               <div class="page-footer">
                 {afterBody.map((BodyComponent) => (
                   <BodyComponent {...componentData} />

@@ -1,0 +1,10 @@
+@use "../../styles/variables.scss" as *;
+
+.custom-component {
+    border: 3px dashed var(--gray);
+    padding: 2rem;
+
+    h3 {
+        margin-top: 0;
+    }
+}

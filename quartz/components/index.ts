@@ -22,6 +22,9 @@ import Breadcrumbs from "./Breadcrumbs"
 import Comments from "./Comments"
 import Flex from "./Flex"
 
+// CUSTOM COMPONENTS
+import CustomComponent from "./CustomComponent"
+
 export {
   ArticleTitle,
   Content,
@@ -46,4 +49,5 @@ export {
   Breadcrumbs,
   Comments,
   Flex,
+  CustomComponent,
 }
