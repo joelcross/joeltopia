@@ -1,7 +1,7 @@
 @use "../../styles/variables.scss" as *;
 
 .custom-component {
-    border: 3px dashed var(--gray);
+    border: 4px dashed var(--gray);
     padding: 2rem;
 
     h3 {

@@ -1,10 +1,9 @@
-⚠️ before you come for my throat ⚠️ i'd like to say that this is just a stream-of-consciousness note and not a peer-reviewed journal article debunking an entire religion
 
-i may, in the future, come to certain conclusion about certain things or change my mind about others, and that's what it's all about :-)
+> [!WARNING] before you come for my thoat
+> this is just a stream-of-consciousness note and not a peer-reviewed journal article debunking an entire religion!!
+> 
+> i may, in the future, come to certain conclusion about certain things or change my mind about others, and that's what it's all about :-)
 
-
-
-___
 sin can be described as disobedience to god. if heaven is without sin, how did angels have the affinity to rebel? how is it that angels could have turned away from god in heaven, but the same doesn't apply for humans? in addition, why is there a big master plan to save humans but not the fallen angels? they're just too far gone? i thought the idea of grace is that no one is ever too far gone?
 ___
 
@@ -103,140 +102,113 @@ ___
 most humans agree that people should be punished when they do wrong. if someone commits a murder, they are given a prison sentence or even the death penalty as punishment for their actions. according to christians, hell is the place where sinners receive punishment for their sin. if someone really deserves hell and the most just thing would be for them to go there, is it not *immoral* to hope that they could escape such punishment? some might say, “well if they’re offered a way out by gods mercy then they should take it”, however that’s like saying it would be fine for someone innocent to take the fall for a criminal and allow the criminal to walk away unpunished- yet most people wouldn’t be ok with that. 
 ___
   
-people say god is just, but is it not unjust that he made his innocent son pay the price for humanities crimes? also, because god made a sacrifice and we haven’t paid him back, are the scales not still tipped to one side? true justice would mean the scales are balanced; humans being indebted to god is not balance and therefore that would not be a just conclusion to this whole thing. we seem to be ok with this selfish idea of ignoring justice when it’s in the favour of humanity. basically, if christians followed the logic of their beliefs, they should WANT unbelievers to go to hell because them suffering for their sins would be the most just thing. (july 24, 2023)
+people say god is just, but is it not unjust for his innocent son to pay the price for humanities crimes? also, because god made a sacrifice and we haven’t paid him back, are the scales not still tipped to one side? true justice would mean the scales are balanced; humans being indebted to god is not balance and therefore that would not be a just conclusion to this whole thing. we seem to be ok with ignoring justice when it’s in the favour of humanity. 
+
+moreover, should it not be a christian value to desire for unbelievers to go to hell because having them suffering for their sins would be the most just thing? (july 24, 2023)
 
 ____________
 
 god changes his mind and decides not to destroy an entire people group after moses begs him not to. is this not sinful of moses? doesn’t it show that he doesn’t trust gods plan and thinks he knows better? where then, are christians meant to find the balance of asking god to intercede vs trusting that whatever happens is according to his plan? (july 24, 2023)
+___
 
+if the astrologers in the story of jesus birth were able to find him through their use of astrology, does that not prove the validity of astrology? even if it was “ultimately god leading them” there, it would have still been god working through the stars (july 25, 2023)
+___
+
+when it comes to determining whether or not someone is “saved”, it is illogical to base an eternal outcome on finite criteria. in our world, qualities such as “belief” exist on a spectrum, so it’s not as simple as either believing fully in something or not believing it it at all. how are we supposed to measure the belief of babies or cognitively disabled people? when are children able to be held accountable for their decision to follow god? if we say that it’s based on the “age of reason”, then that’s also something that exists on a spectrum- it’s not like there's one millisecond where you haven’t met the age of reason, and the next millisecond you have. so, how is it possible to determine whether someone falls into these binary categories of “saved” or “unsaved” when everything else is nature is a spectrum? (july 25, 2023)
+
+thought exercise: let’s take the idea above and say that there WAS a way to determine the whereabouts of this lines that divides those who are in and those who are out. if we ranked each and every person who ever existed and lined them up along this line, we would come to find two individual people along the dividing line- the one who barely made it in and the one who barely didn’t. as the overall sample size increases, the differentiability of belief between these two diminishes, yet christians say that one definitely belongs in heaven and the other definitely belongs in hell and that justice is served. (july 25, 2023)
+___
+
+creation and destruction, life and death, happiness and sadness are all just two sides of the same coin; you can’t have one without the other. thus it’s illogical to believe that adam and eve eating the fruit in the garden is what made creation "fallen". we see in creation that there is a food chain that could never have worked any other way. i.e. 1) some animals can only survive by eating other animals. 2) a piece of rotting fruit creates the perfect environment for a mushroom to grow. life springs forth from death and that is a neutral thing; not a sign of creation being infected by sin. (july 30, 2023)
+___
+
+christianity is bad for mental health. two examples:
+1. it forces constant self-scrutiny, making people obsess over their flaws and shortcomings. This inevitably leads to feelings of worthlessness and self-hatred because we become what we focus our attention on
+2. it instills a lingering fear of not meeting the criteria for salvation, leaving believers with a persistent, underlying anxiety about eternal damnation (no matter how strong one's faith is, doubts are inescapable).
+
+some christians might dismiss these concerns by blaming "poor theology" or shutting down the conversation with thought-terminating cliches like _“god’s ways are higher than ours - we just have to trust and obey!”_ butttt if a relationship with god is supposed to be the best thing for mental health, why don’t christian beliefs actually lead to greater mental wellness? why don’t christians do a better job of teaching people that they _aren’t_ worthless, that they _are_ inherently good? why don’t they equip people to handle uncertainty about eternal life, or teach that there’s no reason to fear hell?
+
+i believe the answer is simply that they can’t, because doing so would contradict the very foundation of the religion. christianity’s power is dependent on self-hatred and fear- it can’t function without them. (Aug 17, 2023)
+___
   
+what is the end goal of christianity?
+- if it's to **minimize the number of people in hell** it would make the most sense to put all of one's efforts into implementing a mass human extinction (that way, we just end things where they are now and avoid bringing any new souls into the world)
+- if it's to **maximize the number of people in heaven**, christians should be the biggest environmentalists or transhumanists so that they have more time to evangelize before the human race ceases to exists.
+(aug 20, 2023)
+___
 
-if the astrologers in the story of jesus birth were able to find him through their use of astrology then it must be real? even if it was “ultimately god leading them” there, it would have still been god working through the stars (july 25, 2023)
+we read a definition of love in philippians and also are told in other parts of the bible that god is love. yet, how can god be kind ("love is kind") when he orders the genocide of entire people groups? how can god not envy ("love does not envy") when the bible says he is a jealous god? how can god not be self-seeking ("love is not self-seeking") when he literally created all of humanity for his own glorification? (sept 16, 2023)
+___
 
-  
+christians like to use the verse “all scripture is god-breathed…” to support the infallibility of the bible, but forget that when that verse was written, it was not yet a part of the canon that we have today. that verse can really only be used to argue for the infallibility of the scriptures that existed prior to that point in time (sept 17, 2023)
+___
 
-when it comes to determining whether or not someone is “saved”, it is illogical to base an eternal outcome on finite criteria. in our world, qualities such as “belief” exist on a spectrum, so it’s not as simple as either believing fully in something or not believing it it at all. how are we supposed to measure the belief of babies or cognitively disabled people? when are children able to be held accountable for their decision to follow god? if we say that it’s based on the “age of reason”, then that’s also something that exists on a spectrum- it’s not like one millisecond you haven’t met the age of reason, and the next millisecond you have. so, how is it possible to determine whether someone falls into the binary category of “saved” or “unsaved” when everything else is nature is a spectrum? it’s like mixing apples and oranges. (july 25, 2023)
+christians make it seem like stories in the bible have specific meanings, however meaning is not objective; it is created when the text is interpreted by the audience. in the barbie movie for example, one person might take away that women are powerful and should be given more power, whereas another person might take away that mean are under threat because it's possible for women to seize power from men and so we need to double down and prevent that from happening. an ancient audience would have read these bible stories within a completely different cultural context than we have today and thus would have different takeaways/interpretations. however, god knew that this would happen and the bible is supposedly “living”... so are we supposed to accept that an unchanged text *can* have a changed meaning based on cultural context, or is it our responsibility to ignore our own context and completely immerse ourselves in the headspace of an ancient reader in order to grasp the meaning *they* would have most likely come to? it can’t be both because these interpretations could be contradictory (take for example any story in the bible where a woman is mistreated due to her gender). when it comes to the barbie movie, we could ask greta gerwig directly what the implied meaning of the film objectively was, however we have no objective source to go to when it comes to determining how to derive meaning from the bible (and we can’t go to the bible itself for this answer because that would be circular reasoning) (sept 21, 2023)
+___
 
-  
+historically, the reason people ever worshipped gods (including yahweh) in the first place was because they needed things from them- their main goal was to be healthy and prosperous because they knew that it was their life on EARTH that mattered. the afterlife was a separate concern that came later (sept 23, 2023)
+___
 
-let’s take the idea above and say that there WAS a way to determine the half-way dividing line along this spectrum of belief and unbelief that separates those who are in or and those who are out. this probably closely aligns with what most christians believe anyways, considering the bible talks about various levels of heaven and hell. continuing on, if we ranked each and every person who ever existed and lined them up along this line, we would come to find two individual people along the divider- the one who barely made it in and the one who barely didn’t. as the overall sample size increases, the differentiability of belief between these two diminishes, yet christians say that one definitely belongs in heaven and the other definitely belongs in hell and that justice is served. (july 25, 2023)
-
-  
-
-creation/destruction, life/death, happy/sadness are all just two sides of the same coin; you can’t have one without the other. Thus it’s illogical to believe that adam and eve eating the fruit in the garden is what brought sin to all of creation. realistically, in creation, there is a food chain that can’t work any other way: some animals only survive by eating other animals. likewise a piece of rotting fruit creates the perfect environment for a mushroom to grow. (july 30, 2023)
-
-  
-
-christianity is bad for mental health. two examples: 1) you are made to constantly scrutinize yourself and look for ways you fall short which inevitably results in feelings of worthlessness and self-hatred (because we become what we focus our attention on), and 2) you are always left with at least a SLIGHT fear that you might not meet all the criteria to be saved and will be burn in hell forever, resulting in insatiable anxiety and self-doubt. Some christians might victim-blame by arguing that these drawbacks are just a result of poor theology, or they may try to shut down the discussion by using a thought-terminating cliche like “gods ways are too high for us to be able to fully grasp! we just need to trust and obey even when things might not make sense to us”. Either way, they’ll have to assert that REAL christianity shouldn’t have such a detrimental impact on people’s mental health because from their perspective, being a christian and having a relationship with god is the best thing you could do for your mental health. But if this is the case, then why are there SO MANY mental health pitfalls that christians’ beliefs set them up against? Why don’t christians do a better job at teaching people that you AREN’T worthless and that you ARE good inside? Why don’t they equip people to better deal with uncertainties about eternal life and teach that you don’t need to be afraid of hell? My conclusion is that they can’t. Teaching such things that would avoid damaging people’s mental health goes against the very crux of the religion BECAUSE THE RELIGIOUS BELIEFS ARE INHERENTLY BAD FOR YOU. Christianity can only have power over you when you are hating yourself and living in fear. (Aug 17, 2023)
-
-  
-
-what is the end goal of christianity? if they want to minimize the number of people in hell it would be best for them to put all of their efforts into implementing a mass human extinction. if their goal is to maximize the number of people in heaven, they should be the biggest environmentalists or transhumanists so that they have more time to evangelize before the human race ceases to exists. (aug 20, 2023)
-
-  
-
-the morals of secular humanists tend to be informed by an ethos of non-harm. christian’s on the other hand believe that morality is objective (even though their morals often align with the principles of non-harm). my question is: if the life of a christian revolves around wanting people to go to heaven, wanting people to produce the fruit of the spirit, wanting to transform evil hearts into pure hearts, wanting to minimize suffering in the world, wanting to minimize the number of people sent to hell, and ultimately aiming to lead a life of “love” that leads to generally positive outcomes, is it not fair to state that christians DO in fact live by an ethos of non-harm? Or, given that christian’s get their morality from the authority of God, could we not say that God’s ethos is one of non-harm, and is this subjective? (aug 20, 2023)
-
-  
-
-we get a definition of love in philippians and also are told in the bible that god is love. yet, how can god be kind when he orders the genocide of entire people groups? how can god not envy when the bible says he is a jealous god? how can god not be self-seeking when he literally created all of humanity for his own glorification? (sept 16, 2023)
-
-  
-
-christians like to use the verse “all scripture is god-breathed…” to support the infallibility of the bible, but forget that when that verse was written, it was not yet a part of the canon that we have today. theoretically, that verse can only be used to argue for the infallibility of the scriptures that existed prior to that point in time (sept 17, 2023)
-
-  
-
-christians make it seem like stories in the bible have specific meanings, however meaning is not objective- it is created when the text is interpreted by the audience. in the barbie movie for example, one person might takeaway that women are powerful and should be given more power, whereas another person might takeaway that it IS possible for women to seize power from men and so we need to double down and prevent that from happening. an ancient audience would have read these bible stories within a completely different cultural context than we have today and thus would have different takeaways. however, god knew that this would happen and the bible is supposedly “living” so are we supposed to accept that an unchanged text can have a changed meaning based on cultural context, or is it our responsibility to ignore our own context and completely immerse ourselves in the expected headspace of an ancient reader in order to grasp the meaning they would have put forth? it can’t be both because these would be contradictory (take for example any story in the bible where a woman is mistreated due to her gender). though we could ask greta gerwig directly what the implied meaning objectively was, we have no objective source to ask about how to derive meaning from the bible (we can’t go to the bible itself for this answer because that would be circular reasoning) (sept 21, 2023)
-
-  
-
-historically, the reason people ever worshipped gods in the first place was because they needed things from them- their main goal was to be healthy and prosperous because they knew that it was their life on EARTH that mattered. the afterlife was a separate concern (sept 23, 2023)
-
-  
-
-i’ve heard people say that when jesus was on the cross, he wasn’t just bearing the physical pain but also the emotional pain of having taken on the guilt of every sin ever committed. this doesn’t make sense though because in every account of the crucifixion his final words are still admirable (sept 24, 2023)
-
-  
+i’ve heard people say that when jesus was on the cross, he wasn’t just bearing the physical pain but also the emotional pain of having taken on the guilt of every sin ever committed. this doesn’t make sense though because in every account of the crucifixion his final words are still admirable. if he were truly feeling the guilt, hatred, rage, pain, grief, etc of having committed every heinous crime committed, surely he would have uttered different words when he was on the cross. (sept 24, 2023)
+___
 
 why would the disciples have different accounts of jesus’ last words if they were all there? some may say that the authors aren’t claiming that the last words they recorded weren’t his actual last words, but that’s how it reads and the bible is meant to be easy for all people to read so god should’ve just made it consistent (sept 24, 2023)
-
+___
   
+in genesis 3, god says “The man has now become like one of us, knowing good and evil. He must not be allowed to reach out his hand and take also from the tree of life and eat, and live forever". doesn't this imply that man wasn’t actually going to live forever? and therefore, that death was already man's destiny before the fruit was eaten and sin was brought into the world? (oct 3, 2023)
+___
 
-in genesis 3, god says “The man has now become like one of us, knowing good and evil. He must not be allowed to reach out his hand and take also from the tree of life and eat, and live forever”, as if man wasn’t actually going to live forever (oct 3, 2023)
-
-  
-
-when a group is having an issue internally, it can cause dissent and weaken relationships. by pinning all of the blame for a systemic issue on a certain person (“scapegoating”) the problem can be resolved without actually having to get to the root of the issue. if jesus was the scapegoat for us, then his death would not have actually solved the root of the problem- we would just want to believe that it did so that we wouldn’t have to address the real issues in our society. when the problems inevitably resurface, the people are forced to find yet another scapegoat. (oct 5, 2023)
-
-  
-
-the scapegoat needs to be someone who’s isolated/vulnerable because if someone else steps in to defend that person, the ritual is nullified (oct 5, 2023)
-
-  
+when a group is having an issue internally, it can cause dissent and weaken relationships. by pinning all of the blame for a systemic issue onto a certain person (“scapegoating”) people can put the problem behind them without actually having to get to the root of the issue. if jesus was the scapegoat for us, then his death would not have actually solved the root of the problem- we would just want to believe that it did so that we wouldn’t have to address the real issues in our society. when the problems inevitably resurface, the people are forced to find yet another scapegoat. this scapegoat needs to be someone who’s isolated/vulnerable because if someone else steps in to defend that person, the ritual is nullified. it is in this way that christians tend to take on the role of the oppressor (oct 5, 2023)
+___
 
 our “sins” are our shadows. we need to heal and integrate them, not just have them magically forgiven and taken away with a few simple words. (oct 5, 2023)
+___
 
-  
+christianity is traumatizing because it teaches you that the desires of your authority figure (god) are more important than your own, and therefore your safety is dependent on fulfilling those needs and minimizing your own.
+___
 
-christianity is traumatizing because it teaches you that what you want isn’t important and doesn’t matter. all that matters is what the abuser figure (god) wants, and your safety is dependent on fulfilling those wants and minimizing your own. 
+christians often interpret the first commandment (“you shall have no other gods before me”) as being symbolic and meaning that you shouldn’t “worship” things like your phone or sports or whatever but to the original audience it literally just meant that they weren’t supposed to worship the other actual gods that existed at that time. i think this is a huge deviation and i’m surprised it’s so widely accepted (oct 19, 2023)
+___
 
-  
+christians will believe in spiritual forces but then say that the other gods in the bible weren’t actually gods?? and also the bible condemns witchcraft and mediums and all that soooo like we should be asking why that is. probably because they’re real! but why would god be threatened by those things if he’s all powerful? interestinggg (oct 19, 2023)
+___
 
-christian’s often interpret the first commandment (“you shall have no other gods before me”) as being symbolic and meaning that you shouldn’t “worship” things like your phone or sports or whatever but to the original audience it literally just meant that they weren’t supposed to worship the other actual gods that existed at that time. i think this is a huge deviation and i’m surprised it’s so widely accepted (oct 19, 2023)
+christians say our bodies are “fallen” because of death, sickness etc, yet fail to acknowledge that our bodies are also working in perfect function in the sense that they carry the intelligence to heal us and they send pain to alert us when something is wrong. they're not broken, that's just how they work. (oct 21, 2023).
+___
 
-  
-
-christians will believe in spiritual forces but then say that the other gods in the bible weren’t actually gods?? and also the bible condemns witchcraft and mediums and all that soooo like we should be asking why that is. probably because they’re real! but why would god be threatened by those things if he’s all powerful? it’s kinda giving the wizard of oz trying to scare off dorothy (oct 19, 2023)
-
-  
-
-christians say our bodies are “fallen” because of death, sickness etc, yet don’t acknowledge that our bodies are also working in perfect function in the sense that they carry the intelligence to heal us and they send pain to alert us when something is wrong (oct 21, 2023)
-
-  
-
-christians today treat the reading-aloud of scripture as a sacrament because such a practice is praised in the bible, yet they only did that back in ancient times because no one was able to read LOL (nov 21, 2023)
-
-  
+christians today treat the reading-aloud of scripture as a sacrament because such a practice is praised in the bible, yet they only did that back in ancient times because no one was able to read loool (nov 21, 2023)
+___
 
 nothing that comes from within is really permitted in christianity… except faith, which is the foundation for all of it🤔 (dec 2, 2023)
+___
 
+yahweh hating on other religions for encouraging child sacrifice, only for yahweh to sacrifice his own child hmmm (dec 3, 2023)
+___
+
+when adam and eve ate the fruit, god didn’t say they became sinful, he said they became “like one of us, knowing good and evil”. They were changed to “know” evil (like god)- not to become evil. Thus “the fall” is really just humans starting to catch up to gods level of power - god even says “He must not be allowed to reach out his hand and take also from the tree of life and eat, and live forever” so that they don’t fully reach his level, likely because he wants to maintain his power over them. if their ability to know evil equates to them being evil, or at least having the potential for evil, then logically we have to view god in the same way (dec 6, 2023)
+___
+
+if god only cursed the ground after adam and eve ate the fruit, what was so good about eden compared to the rest of the world? wouldn't everywhere have had to be perfect before the fall? (dec 6, 2023)
+___
+
+some christians say that aborted babies or unreached people groups go to heaven because they never had the chance to develop a relationship with god. if that’s true, then shouldn't christians continue to encourage those situations so that more souls can spend eternity with god? (dec 12, 2023)
+___
+
+to defend todays canon, christians would need to stand behind the purposeful alterations made by scribes over the years. because these alterations were made by people other than the original authors it would be a bit of a stretch to hold that the alterations were ALSO “by inspiration”. if these alterations were not mystically inspired, christians would then have to believe that the experiences that the scribes had in life that led them to alter the text in those ways were all planned out by god to give us the passages we read today. that's a biggg stretch imo. and it seems to negate the idea of free will in the sense that it implies that all of these these authors were only having such experiences because god made them happen in order to create the future he had planned out the whole time. 
+
+this whole situation is also problematic because depending on when you were alive, some people would be reading the original unaltered manuscript and others would be reading the altered one, yet they would both be considered inspired/canonical (dec 15, 2023)
+___
+
+christians tend to believe that people who deconstruct/fall away were never christians in the first place, so why does it matter to them? technically, it’s just someone going from non-christian —> non-christian. deconstruction can’t be dangerous to christianity if it doesn’t actually impact the salvation of any believers. thus, it's interesting that christians see people deconstructing as such a threat or a shock (jan 31, 2024 from a paulogia video)
+___
+
+christianity prevents people from undergoing the necessary developmental step of making your own decisions and learning from your mistakes. All of the rules are already set in place for you and you aim to act in a way that avoids making mistakes, so by the time you reach adulthood, your actions are not conscious or informed by your innermost wisdom or deepest desires or the lessons you've learned, but are a mere instinctual response to an external authority. This leaves people incapable of making decisions in situations that are more nuanced or that don’t follow the rigid guidelines that were put in place for them, and encourages other splitting behaviors. They never learned to think for themselves and will experience a lot of mental turmoil as a result. Also, because they never developed their own nuanced sense of morality, they will likely have trouble navigating morally grey areas. (april 10, 2024)
+___
+
+christians are programmed to believe that non-believers have a wall up against christianity, so when a non-believer presents a valid point to why christianity is flawed or doesn’t make sense, the christian will tend to automatically reject it without even giving it proper consideration because "the non-believer's heart is just hardened" or "they just don't understand the gospel". the christian will bypass the logic of the argument because they already have a conclusion in their mind regardless of the problem being presented and the non-believer is just being deceived into not seeing the truth. it is for this reason that i think empathy and open mindedness are some of the most important qualities one can have (and therefore also some of the qualities that christians likely lack the most) (may 20, 2024)
+___
+
+christianity invented the problematic mentality of “just as soon as [xyz], then i’ll be happy” through its stance that our lives are simply a moment of suffering before everything is one day made perfect (may 28, 2024, paraphrased from damon dominique who paraphrased from nietzche)
+___
   
-
-OT god hating other religions for encouraging sacrifice, only for OT god to sacrifice his own child (dec 3, 2023)
-
-  
-
-when adam and eve at the fruit, god didn’t say they became sinful, he said they became “like one of us, knowing good and evil”. They were changed to “know” evil (like god)- not to become evil. Thus “the fall” is really just humans starting to catch up to gods level of power - he even says “He must not be allowed to reach out his hand and take also from the tree of life and eat, and live forever” so that they don’t fully reach his level, likely because he wants to maintain his power over them. if their ability to know evil equates to them being evil, or at least having the potential for evil, then logically we have to view god in the same way (dec 6, 2023)
-
-  
-
-if god only cursed the ground after adam and eve ate the fruit, what was so good about eden? it couldn’t have been any better than outside of eden because everything everywhere would have had to be perfect before the fall (dec 6, 2023)
-
-  
-
-some christians say that aborted babies or unreached people groups go to heaven because they never had the chance to develop a relationship with god. if that’s true, then we should continue to encourage those situations so that more souls can spend eternity with god (dec 12, 2023)
-
-  
-
-to defend todays canon, christians would need to stand behind the purposeful alterations made by scribes over the years. because these alterations were made by people other than the original authors it would be a bit of a stretch to hold that the alterations were ALSO “by inspiration”. if these alterations were not mystically inspired, christians would then have to believe that the experiences that the scribes had in life that led them to alter the text in those ways were all planned out by god to give us the passages we read today. that, however, seems to negate the idea of free will as these authors were only having such experiences because god made them happen in order to create the future he had planned out the whole time. this is also problematic though, because depending on when you were alive, some people would be reading the original unaltered manuscript and others would be reading the altered one, and they would both be considered inspired canon which logically isn’t possible (dec 15, 2023)
-
-  
-
-christians tend to believe that people who deconstruct/fall away were never christians in the first place, so why does it matter to them? technically, it’s just someone going from non-christian —> non-christian. deconstruction can’t be dangerous to christianity if it doesn’t actually impact the salvation of any believers. (jan 31, 2024 from paulogia video)
-
-  
-
-christianity doesn’t allow people to undergo the necessary developmental step of making your own decisions and learning from your mistakes. All of the rules are already set in place for you, so by the time you reach adulthood, your actions are not conscious or informed by your innermost wisdom or deepest desires, but are a mere instinctual response to an external authority. This leaves people incapable of making decisions in situations that are more nuanced or that don’t follow the rigid guidelines that were put in place for them, and encourages other splitting behaviors. They never learned to think for themselves and will experience a lot of mental turmoil as a result. (april 10, 2024)
-
-  
-
-christians are programmed to believe that non-believers just don’t really understand things, so even when a non-believer presents a valid point to why christianity is wrong or doesn’t make sense, the christian will automatically reject it without even giving it consideration. They will bypass the logic of the argument because they already have a magical conclusion in their mind regardless of the problem being presented and the non-believer is just being deceived into not seeing the truth. Thus, i think empathy and open mindedness are some of the most important qualities one can have (and therefore also some of the qualities that christians likely lack the most) (may 20, 2024)
-
-  
-
-christianity invented the problematic “just as soon as ___, then i’ll be happy” mentality through its stance that our lives are simply a moment of suffering before everything is one day made perfect (may 28, 2024, paraphrased from damon dominique who paraphrased from nietzche)
-
-  
-
-in christianity, the belief of god being all good and satan being all bad leads people to also label others (and themselves) as either all good or all bad (july 17, 2024)
+in christianity, the belief of god being all good and satan being all bad leads people to also label others (and themselves) as either all good or all bad. (july 17, 2024)

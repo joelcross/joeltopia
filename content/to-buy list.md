@@ -1,5 +1,5 @@
 # soon
-- [ ] loafers
+- [ ] loafers (tabis ??? lol)
 - [x] black leather belt
 - [x] airpods 4
 - [ ] beige pleated wide-leg pants
@@ -10,8 +10,7 @@
 - [ ] royal blue crewneck
 - [ ] colourful socks (red or blue)
 - [ ] paperboy hat
-- [ ] earring replacements (tight gold hoops with a little something extra??)
-- [ ] tabis (lmfao)
+- [ ] earring replacements (maybe [these](https://www.notbranded.fr/products/bali-earrings-stainless-steel)?)
 
 # long-term
 - [ ] record player
