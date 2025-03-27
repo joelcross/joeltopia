@@ -192,7 +192,6 @@ a {
     }
 
     & .sidebar.left {
-      border-right: 4px dashed var(--gray);
       margin-right: 2rem;
       z-index: 1;
       grid-area: grid-sidebar-left;
@@ -206,6 +205,10 @@ a {
         flex-direction: row;
         padding: 0;
         padding-top: 2rem;
+      }
+
+      @media all and not ($mobile) {
+        border-right: 4px dashed var(--gray);
       }
     }
 
