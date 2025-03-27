@@ -8,7 +8,7 @@ my initial voyage was a two-month trip to the maltese countryside where i was wo
 
 ![[IMG_2251_jpg.jpg|400]]
 
-miraculously, i stumbled upon what appeared to be the perfect au-pair position in the heart of paris. 6 weeks later, my plane touched down at charles de gaulle and i stared out the car window in awe of the city as my new au-pair mom drove me to what would be my new home for the next 10 months. things started well, but i soon came to the realization that au-pairing was not everything i was expecting it would be. the kids were more difficult than i anticipated, and the expectations seemed to get higher and higher until my duties were basically unrecognizable from how they were initially defined. this, combined with (again) a lack of solitude and personal space, made life feel incredibly difficult (read about my [mental breakdown]). this is where i am now.
+miraculously, i stumbled upon what appeared to be the perfect au-pair position in the heart of paris. 6 weeks later, my plane touched down at charles de gaulle and i stared out the car window in awe of the city as my new au-pair mom drove me to what would be my new home for the next 10 months. things started well, but i soon came to the realization that au-pairing was not everything i was expecting it would be. the kids were more difficult than i anticipated, and the expectations seemed to get higher and higher until my duties were basically unrecognizable from how they were initially defined. this, combined with (again) a lack of solitude and personal space, made life feel incredibly difficult (read about my [[mental breakdown]]). this is where i am now.
 
 ![[IMG_5974.jpg|400]]
 
