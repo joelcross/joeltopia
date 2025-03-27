@@ -1,4 +1,4 @@
-[march 27, 2025]
+==march 27, 2025==
 
 recently i've been a bit down on myself, wondering if i'm doing things right and making the right decisions and correctly setting myself up to get where i'd like to be. worrying that i've wandered onto a path that isn't for me. hearing a voice in my head telling me that my suffering is a warning that i need to be somewhere else. imposing too many "*should*"s.
 
@@ -6,7 +6,11 @@ when i made the decision to leave toronto in search of something different abroa
 
 my initial voyage was a two-month trip to the maltese countryside where i was working at a farmhouse airbnb in exchange for a free place to stay. though the environment was incredibly beautiful, i was living on a property with ~12 other people around at any given time, meaning my moments of solitude were incredibly few and far between. i took what i could get and learned to be creative in finding ways to meet my quiet time quota, but i would be lying if i said the whole experience didn't make me a little (more than a little) crazy. in addition, i was being faced with a crazy boss who belittled me and really made me doubt myself at times. all of the comforts i had left behind in canada were gone, and at the end of the day it was just me and myself. i was also incredibly stressed at this time, feeling the pressure to quickly find some other placement somewhere that would allow to prolong my time abroad and avoid having to return to the unsustainable lifestyle i had put behind me.
 
+![[IMG_2251_jpg.jpg|400]]
+
 miraculously, i stumbled upon what appeared to be the perfect au-pair position in the heart of paris. 6 weeks later, my plane touched down at charles de gaulle and i stared out the car window in awe of the city as my new au-pair mom drove me to what would be my new home for the next 10 months. things started well, but i soon came to the realization that au-pairing was not everything i was expecting it would be. the kids were more difficult than i anticipated, and the expectations seemed to get higher and higher until my duties were basically unrecognizable from how they were initially defined. this, combined with (again) a lack of solitude and personal space, made life feel incredibly difficult (read about my [mental breakdown]). this is where i am now.
+
+![[IMG_5974.jpg|400]]
 
 i left my old life behind in hopes of catching a break and finding ease in my everyday life, yet instead i've found myself experiencing crisis after crisis. i've been asking myself: *where did things go wrong? if i could do this again, what would i change? how can i avoid these painful experiences in the future?* at the same time though, i'm not sure that these are the right questions to ask. why am i so quick to assume that something went wrong simply because things feel difficult? what if things being difficult means that i'm **exactly where i'm supposed to be**, in order to learn the lessons i'm meant to learn?
 
@@ -17,6 +21,8 @@ i've grown to adopt a deeper appreciation for my sensitive nature and come to gr
 i'm also more familiar and attentive to my needs than ever before. i've come to accept that my needs are different than most people, and that's not a bad thing. i respect the feelings that i feel, even when i don't know why i'm feeling them. i know what works for me in terms of regulating my nervous system, and i've learned to care for myself in the same way i would care for someone i love.
 
 i feel it's also important to add that not every challenge is necessarily worth enduring. sometimes we need to ask ourselves whether our current situation is something that will help us grow in a way that is truly worthwhile, or whether it's merely draining us without any real benefit. **sometimes growth comes not from forcing ourselves to endure a hard time, but knowing when to leave a difficult situation** (if possible, of course) and choose ourselves instead. the latter is not giving up, but letting go.
+
+![[IMG_6264.jpg|400]]
 
 i like to imagine that this growth i've experienced is exactly what will allow me to shift into the life that i've been desiring. perhaps my unhappiness and dissatisfaction was life prior to my travels were necessary in order to push me to leave so that i could experience the things that have changed me into who i am today. it's also equally likely that that's just my human nature trying to make sense of my pain in a chaotic world. lol.
 

@@ -1,4 +1,4 @@
-[march 23, 2025]
+==march 23, 2025==
 
 today i had a meltdown and found myself the closest i've ever been to deciding to leave paris (still not sure what's going on with all of that). i will say, though, that this was one of the cuntier anxiety attacks i've had- eyes glazed over, riding through paris on a crowded line 7 with a long skinny cream-coloured scarf wrapped around my neck, contrasted by my all-black attire.
 
